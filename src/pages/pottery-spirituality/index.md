@@ -1,6 +1,6 @@
 ---
 title: Pottery and Spirituality
-date: "2015-05-01T22:12:03.284Z"
+date: "2021-04-024T22:12:03.284Z"
 ---
 
 ![A hand holding an unfired mug.](./pottery-spirituality-blog-1.jpg)
