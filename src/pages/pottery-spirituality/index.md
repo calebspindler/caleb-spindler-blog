@@ -3,15 +3,15 @@ title: Pottery and Spirituality
 date: "2021-04-024T22:12:03.284Z"
 ---
 
-![A hand holding an unfired mug.](./pottery-spirituality-blog-1.jpg)
-
 What does pottery have to do with spirituality?
 
-Art is spiritual.
+![A hand holding an unfired mug.](./pottery-spirituality-blog-1.jpg)
+
+**Art is spiritual.**
 
 I’m not here to art-shame. I do believe that all art inherently has a spiritual component. But I also believe that the more an artist develops their craft and creates from a place of inspiration, the greater a piece of art reflects the human spirit, revealing creativity, beauty, and love. It’s what sets apart a painting from a talented local artist from one that is mass produced and sold at convenient stores.
 
-When art is made, that which runs the deepest throughout all of us shines through. And while I believe this is true of all art, I am a potter. So when it comes to pondering art and spirituality, that is the art form that sings the loudest to me.
+**When art is made, that which runs the deepest throughout all of us shines through. And while I believe this is true of all art, I am a potter.** So when it comes to pondering art and spirituality, that is the art form that sings the loudest to me.
 
 If there is one person who understands some divine orchestration between pottery and spirituality, it’s Rupert Spira. He is one of my favorite non-dual spiritual teachers. He leads retreats and speaks all over the world, and a number of those presentations can be found on The Rupert Spira Podcast. Not only is he a gifted teacher, though, he is also an extremely gifted ceramicist (though he doesn’t practice much these days).
 
@@ -21,17 +21,17 @@ Spira begins by acknowledging his mentor, Michael Cardew, specifically regarding
 
 According to Cardew, Spira says,
 
-> “When technique and inspiration become identified, the glow of life will begin to appear in a potter’s work. Nobody can say in rational terms exactly what this glowing consists of, or how the inanimate can be capable of transmitting life from the maker to the user. But it is a fact of common experience, if not describable in terms of common sense. This aspect of pottery is not always discernible to a first casual inspection. But provided it is in daily use, it becomes visible; just as a good character comes to be appreciated only through continued acquaintance. It’s presence will fill the gaps between sips of tea or coffee, at those moments when the mind, not yet focused on activity, is still in an open and receptive state, and it will minister quietly to the background of consciousness with a friendly warmth, or even perhaps on some occasions with a kind of consolation. That’s the potter’s art.”
+> **“When technique and inspiration become identified, the glow of life will begin to appear in a potter’s work.** Nobody can say in rational terms exactly what this glowing consists of, or how the inanimate can be capable of transmitting life from the maker to the user. But it is a fact of common experience, if not describable in terms of common sense. This aspect of pottery is not always discernible to a first casual inspection. But provided it is in daily use, it becomes visible; just as a good character comes to be appreciated only through continued acquaintance. It’s presence will fill the gaps between sips of tea or coffee, at those moments when the mind, not yet focused on activity, is still in an open and receptive state, and it will minister quietly to the background of consciousness with a friendly warmth, or even perhaps on some occasions with a kind of consolation. That’s the potter’s art.”
 
 Spira then elaborates on Cardew’s words, saying,
 
 > “What is a consolation? If somebody consoles us, they bring peace to us when we are suffering. Someone who is suffering, they want consolation. When we bring consolation to someone, we bring peace to them in the midst of their suffering. Michael was saying, ultimately this is what is transmitted subliminally in between the sips of tea and coffee, not when you are focusing on the bowl as you do in a gallery. On the contrary, when you are not focusing, when [you’re mind is] still in an open and receptive state, it delivers this consolation, this peace, this comfort; it brings this end of suffering.”
 
-Thus, art has the ability to influence human beings indirectly. It can deliver peace in times of suffering. It can console us in times of need.
+**Thus, art has the ability to influence human beings indirectly. It can deliver peace in times of suffering. It can console us in times of need.**
 
 I’ve definitely experienced this. I have a handmade mug from PKK Ceramics that I use almost every morning. There really is something different about using that instead of a mass produced mug that someone bought from a gas station and gave me for my birthday. It changes the entire experience. I find myself enjoying the beverage more than just using it as a vehicle for caffeine consumption. It’s more serene. It’s more tranquil.
 
-And yet, there is often this animosity in religious communities between that which is spiritual and that which is material, non-attachment vs. attachment.
+**And yet,** there is often this animosity in religious communities between that which is spiritual and that which is material, non-attachment vs. attachment.
 
 In that same podcast episode, Rupert goes on to discuss his journey toward becoming an established ceramicist. One of the topics he discusses is the apparent gap between spirituality and material skills. Until he was mentored by a non-dual spiritual teacher, who opened his mind to seeing love and beauty as one and the same, he had always felt he was being pulled in two directions, non-attachment (spirituality) and attachment (pottery).
 
