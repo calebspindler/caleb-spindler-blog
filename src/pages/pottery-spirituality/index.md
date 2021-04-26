@@ -1,6 +1,6 @@
 ---
 title: Pottery and Spirituality
-date: "2021-04-024T22:12:03.284Z"
+date: "2021-04-24T22:12:03.284Z"
 ---
 
 What does pottery have to do with spirituality?
